@@ -2,7 +2,7 @@ heyy
 jai jai AR Club !!
 Mehh is aditya vijay
 huihuihui
-hello Jai Shree this side 
+hello Jai Shree this side from IGDTUW
 personal website: https://adityavijay.codes
 
 # hactoberfestdemo
